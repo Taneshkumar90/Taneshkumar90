@@ -14,7 +14,7 @@ A curious and passionate Data Analyst.
 Reach out to me at: [taneshkumar95@gmail.com](mailto:taneshkumar95@gmail.com)
 ## Let's Connect!
 
-[![LinkedIn - Tanesh Kumar](https://img.shields.io/badge/LinkedIn-Tanesha%20Kumar-blue)]([https://www.linkedin.com/in/tanesh-kumar-147a87237)
+[LinkedIn](https://www.linkedin.com/in/tanesh-kumar-147a87237)
 
 
 
